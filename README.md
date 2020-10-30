@@ -1,2 +1,2 @@
 # leech-bot
-any doubts contact @ffilmsandtrends_owner
+any doubts contact @filmsandtrends_owner
